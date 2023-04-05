@@ -14,6 +14,8 @@ in the Sword and Shield era of Pokemon Trading Cards.
 
 ---
 
+
+
 #### support / tip  
 If you think this is super cool, or useful, and want to donate a little, then you are also super cool!
 
